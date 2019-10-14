@@ -40,4 +40,4 @@ The more times you do something, it makes it difficult to forget.
  Breaks improve consistency and clarity.
 ##Post 1 - Oc 2, 2019
 
-This is where you will write your blog post.
+
