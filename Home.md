@@ -1,4 +1,4 @@
-# About Me
+<label for="loving"><input id="loving" type="checkbox" name="personality"> Loving</label># About Me
 
 My name  is Sequoyah. I am a full time student at Springlake Metro Tech located in Oklahoma City. 
 I am currently taking a coding course as a stepping stone to becoming a professional web developer.
@@ -40,4 +40,7 @@ The more times you do something, it makes it difficult to forget.
  Breaks improve consistency and clarity.
 ##Post 1 - Oc 2, 2019
 
+#Intro To GitHub
+GitHub is a code hosting platform for version control and collaboration. It lets you and others work together on projects from anywhere.
 
+This tutorial teaches you GitHub essentials like repositories, branches, commits, and Pull Requests. You’ll create your own Hello World repository and learn GitHub’s Pull Request workflow, a popular way to create and review code.
