@@ -119,15 +119,17 @@ accomplishments.
 
 On an individual basis, we never know what someone is experiencing on a daily basis in their personal lives aside 
 from being a full time or in many cases a part time student. Generally, it is safe to say that we all deal with 
-obstacles at some point or another in our lives whether it be financial, mental, physical, financial, 
+obstacles at some point or another in our lives. Some obstacles are in our inner circle of influence while others 
+are in our outer circle of influence. Discern which circle of influence the obstacle is in and deal with it
+accordingly. Here are   tips to help you overcome obstacles in your life.
 
-Self Care
+1.Self Care
 First things first, you have to take care of yourself. I understand having to make sacrifices, but keep in mind
 a barrier to make sacrifices is created when you don't take care of yourself. Get the daily nourishment you need, 
 time for yourself,(Even if that means in the car) proper amount of sleep and the rest of your needs are met as 
 well.
 
-Fear
+2.Fear
 It plays an important role in the processing of emotions, including fear. When we are afraid, it sets off a 
 sophisticated, coordinated response in our brains and bodies.The body also releases cortisol in response to 
 ACTH, which brings about the rise in blood pressure, blood sugar, and white blood cells.
@@ -139,38 +141,38 @@ that. It plays an important role in the processing of emotions, including fear. 
 sophisticated, coordinated response in our brains and bodies. The body also releases cortisol in response to
 ACTH, which brings about the rise in blood pressure, blood sugar, and white blood cells.
 
-Self Entitlement
+3.Self Entitlement
 A sense of entitlement is defined as "an unrealistic, unmerited or inappropriate expectation of favorable living
 conditions and favorable treatment at the hands of others."
 
-Perfectionism
+4.Perfectionism
 In psychology, perfectionism is a personality trait characterized by “a person's striving for flawlessness and 
 setting excessively high performance standards, accompanied by overly critical self-evaluations and concerns 
 regarding others' evaluations.”
 https://www.verywellmind.com/signs-you-may-be-a-perfectionist-3145233
 
-Learn from your failure
+5.Learn from your failure
 I am a firm believer that if you don't learn the first time, you will defenitely repeat the lesson. There isn't 
 any reason to reinvent the wheel. You possess the luxury of learning from the mistakes of others. Take the time 
 to evaluate and revaluate
 .
-Take small steps
+6.Take small steps
 Setting and accomplishing goals can feel like an insurmountable obstacle. The key is taking small steps to make
 progress towards your goal. Create a realistic list of action items — things you can actually do, right now, to 
 make progress. It is important for you to understand how to break down your big goal into smaller attainable 
 goals. It is easy to get overwhelmed by trying to take on too much at one time. 
 
 
-Make no excuses
+7.Make no excuses
 It doesn't much to make excuses and in doing so you loose grip of your "why". Don't forget the reason you made 
 the decision to invest your time in your learning process. The quickest way to avoid making excuses is to take 
 action. Take the steps necessary to leave no room for excuses under any circumstance. Take full responsibility of 
 your outcome and be accountable for your actions. Never give up and you will make it!
 
-Step outside your comfort zone
+8.Step outside your comfort zone
 If you're uncomfortable, you are probably doing something right. I encourage you to continue to push yourself to do things that you have never done before and of course things that are conducive to your learning process. Some of the best things happen when you are uncomfortable.
 
-Do Not procrastinate 
+9.Do Not procrastinate 
 Procrastination is expensive. In the event you find yourself putting something off, because it feels like it is 
 too much and it becomes overwhelming, evaluate your objectives, devise a plan and take immediate action. It may 
 seem like it is too much to do, but if you break down your objective in steps and pace yourself, you will be
@@ -178,17 +180,14 @@ sucessful. Check out this link for some helpful tips about overcoming procrastin
 https://www.psychologytoday.com/us/basics/procrastination
 
 
-Seek advice and support
+1.Build a support system and gain perspective
 Build a support system for yourself that is conducive to your learning process. Exposure is also key when it 
 comes to building a support system. Therapy is amazing if you have never experiened it. Check with your community
 agency for some resources for affordable therapy and in some cases you may qualify to recieve the servicee free
-of charge. 
-
-Gain perspective
-Your perception is everything and it will determine how you approach the obstacle. Make a decision to be positive 
-no matter what. In short we attract what we think and our thoughts determing how we handle things in life. 
-Mentors are an excellent source to assist with navigating through obstacles and overcoming them. Be cautious of 
-what you allow to take root in your life. Last, but not least, never forget your "Why".
+of charge. Your perception is everything and it will determine how you approach the obstacle. Make a decision to 
+be positive no matter what. In short we attract what we think and our thoughts determing how we handle things in 
+life. Mentors are an excellent source to assist with navigating through obstacles and overcoming them. Be 
+cautious of what you allow to take root in your life. Last, but not least, never forget your "Why".
 
 
 
