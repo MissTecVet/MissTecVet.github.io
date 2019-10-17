@@ -108,12 +108,87 @@ give time for your brain to absorb what you have read
 
  Breaks improve consistency and clarity.
  
- 7. Track your progress
- A sense of accomplishment is like a breath of fresh air! Prioritize your tasks, keep track and check out your 
- accomplishments.
+7. Track your progress
+A sense of accomplishment is like a breath of fresh air! Prioritize your tasks, keep track and check out your 
+accomplishments.
  
-##Post 1 - Oc 2, 2019
+##Post 1 - October 2, 2019
 
+
+#Overcoming Obstacles
+
+On an individual basis, we never know what someone is experiencing on a daily basis in their personal lives aside 
+from being a full time or in many cases a part time student. Generally, it is safe to say that we all deal with 
+obstacles at some point or another in our lives whether it be financial, mental, physical, financial, 
+
+Self Care
+First things first, you have to take care of yourself. I understand having to make sacrifices, but keep in mind
+a barrier to make sacrifices is created when you don't take care of yourself. Get the daily nourishment you need, 
+time for yourself,(Even if that means in the car) proper amount of sleep and the rest of your needs are met as 
+well.
+
+Fear
+It plays an important role in the processing of emotions, including fear. When we are afraid, it sets off a 
+sophisticated, coordinated response in our brains and bodies.The body also releases cortisol in response to 
+ACTH, which brings about the rise in blood pressure, blood sugar, and white blood cells.
+Fear is meant to serve as a warning sign, however when you allow yourself to become paralyzed by fear, that is 
+something completely different. Fear can impair formation of long-term memories and cause damage to certain parts 
+of the brain, such as the hippocampus. This can make it even more difficult to regulate fear and can leave a 
+person anxious most of the time. To someone in chronic fear, the world looks scary and their memories confirm 
+that. It plays an important role in the processing of emotions, including fear. When we are afraid, it sets off a 
+sophisticated, coordinated response in our brains and bodies. The body also releases cortisol in response to
+ACTH, which brings about the rise in blood pressure, blood sugar, and white blood cells.
+
+Self Entitlement
+A sense of entitlement is defined as "an unrealistic, unmerited or inappropriate expectation of favorable living
+conditions and favorable treatment at the hands of others."
+
+Perfectionism
+In psychology, perfectionism is a personality trait characterized by “a person's striving for flawlessness and 
+setting excessively high performance standards, accompanied by overly critical self-evaluations and concerns 
+regarding others' evaluations.”
+https://www.verywellmind.com/signs-you-may-be-a-perfectionist-3145233
+
+Learn from your failure
+I am a firm believer that if you don't learn the first time, you will defenitely repeat the lesson. There isn't 
+any reason to reinvent the wheel. You possess the luxury of learning from the mistakes of others. Take the time 
+to evaluate and revaluate
+.
+Take small steps
+Setting and accomplishing goals can feel like an insurmountable obstacle. The key is taking small steps to make
+progress towards your goal. Create a realistic list of action items — things you can actually do, right now, to 
+make progress. It is important for you to understand how to break down your big goal into smaller attainable 
+goals. It is easy to get overwhelmed by trying to take on too much at one time. 
+
+
+Make no excuses
+It doesn't much to make excuses and in doing so you loose grip of your "why". Don't forget the reason you made 
+the decision to invest your time in your learning process. The quickest way to avoid making excuses is to take 
+action. Take the steps necessary to leave no room for excuses under any circumstance. Take full responsibility of 
+your outcome and be accountable for your actions. Never give up and you will make it!
+
+
+
+Step outside your comfort zone
+If you're uncomfortable, you are probably doing something right. I encourage you to continue to push yourself to do things that you have never done before and of course things that are conducive to your learning process. Some of the best things happen when you are uncomfortable.
+
+Do Not procrastinate 
+Procrastination is expensive
+https://www.psychologytoday.com/us/basics/procrastination
+
+
+Manage your expectations Eliminate distractions
+
+
+Seek advice and support
+
+
+Gain perspective
+Your perception is everything and it will determine how you approach the obstacle. 
+
+
+
+Plan
 
 
 
