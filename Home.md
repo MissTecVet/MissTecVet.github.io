@@ -167,28 +167,30 @@ the decision to invest your time in your learning process. The quickest way to a
 action. Take the steps necessary to leave no room for excuses under any circumstance. Take full responsibility of 
 your outcome and be accountable for your actions. Never give up and you will make it!
 
-
-
 Step outside your comfort zone
 If you're uncomfortable, you are probably doing something right. I encourage you to continue to push yourself to do things that you have never done before and of course things that are conducive to your learning process. Some of the best things happen when you are uncomfortable.
 
 Do Not procrastinate 
-Procrastination is expensive
+Procrastination is expensive. In the event you find yourself putting something off, because it feels like it is 
+too much and it becomes overwhelming, evaluate your objectives, devise a plan and take immediate action. It may 
+seem like it is too much to do, but if you break down your objective in steps and pace yourself, you will be
+sucessful. Check out this link for some helpful tips about overcoming procrastination.
 https://www.psychologytoday.com/us/basics/procrastination
 
 
-Manage your expectations Eliminate distractions
-
-
 Seek advice and support
-
+Build a support system for yourself that is conducive to your learning process. Exposure is also key when it 
+comes to building a support system. Therapy is amazing if you have never experiened it. Check with your community
+agency for some resources for affordable therapy and in some cases you may qualify to recieve the servicee free
+of charge. 
 
 Gain perspective
-Your perception is everything and it will determine how you approach the obstacle. 
+Your perception is everything and it will determine how you approach the obstacle. Make a decision to be positive 
+no matter what. In short we attract what we think and our thoughts determing how we handle things in life. 
+Mentors are an excellent source to assist with navigating through obstacles and overcoming them. Be cautious of 
+what you allow to take root in your life. Last, but not least, never forget your "Why".
 
 
-
-Plan
 
 
 
