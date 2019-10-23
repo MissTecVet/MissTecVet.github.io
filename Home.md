@@ -35,7 +35,7 @@ It would be ideal to have available child care during your learning process, how
 case. Speaking from experience, it is challenging to keep a two year old occupied while engaging in your school
 work. Here are five things that you can do to help the process run a little smoother.
 
-5 Helpful Tips for Single Parents That Are Students
+#5 Helpful Tips for Single Parents That Are Students
 
 Consistency is imperative, so getting a daitly routine is important. Take in consideration that your routine will
 generally work around your child/children's schedule. This will decrease the level of stress you will endure. 
