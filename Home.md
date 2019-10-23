@@ -53,11 +53,9 @@ church home. If all of the above isn't applicable check this link out xxxxxxx.
 that time. Grab your headphones and listen to a video or tutorial if you are assigned any during your learning 
 process. Audio books may be useful for you depending on whether or not the particular one you need is available.
 
-2. Pace yourself and be very patient. Set, small, achievable goals and reward yourself when you reach a goal. Focus 
+5. Pace yourself and be very patient. Set, small, achievable goals and reward yourself when you reach a goal. Focus 
 on completing one assignment at a time. Self assessments help track your progress and motivates you to keep 
 going.
-
-
 
 Self learning creates flexibility and makes it much more feasible to balance everyday life while going to school.
 Confidence is developed over time and perserverance takes a much deeper meaning. Over time each individual will 
@@ -68,7 +66,6 @@ identify problems and quickly look for effective solutions on your own.
 Self Learning has a lot of benefits, however self learning starts with self. It is viatal for you to take care
 of yourself in general, but even more so during your learning process. Make 
 
-
 Here are five tips for practicing successful self-study:
 
 1. Prepare your study envinronment
@@ -78,11 +75,11 @@ accesible and to help eliminate distractions. It is important to have a nice, cl
 study, so be sure to keep your environment clutter free and neat.
 
 2. Set SMART goals
- SMART. S.M.A.R.T. is an acronym that stands for specific, measurable, attainable, realistic and timely.
- Setting SMART goals for yourself ensures organiztion, decreased stressed, a sense of accomplishiment, structure
- and many more benefits. You gain a way to track your progress and evaluate your objectives. Check this link
- out for more information on SMART goals.
- https://www.yourcoach.be/en/coaching-tools/smart-goal-setting.php
+SMART. S.M.A.R.T. is an acronym that stands for specific, measurable, attainable, realistic and timely.
+Setting SMART goals for yourself ensures organiztion, decreased stressed, a sense of accomplishiment, structure
+and many more benefits. You gain a way to track your progress and evaluate your objectives. Check this link
+out for more information on SMART goals.
+https://www.yourcoach.be/en/coaching-tools/smart-goal-setting.php
  
 3. Increase your support. ...
 Self learning requires a lot of discipline and it is helpful to get an accountbility partner. Check for groups
@@ -95,22 +92,17 @@ It does'nt take long for learning resources to pile up. Pick some key resources 
 platforms to avoid becoming overwhelmed. Be sure to double check each one coincide with one another to avoid 
 getting confused.
 
-5. Repetition reinforces 
+5. Repetition and time 
 Extend grace to yourself during this learning process. Everything will come together over time. Consistency is
 key getting all you can out of what you are investing your time in. The more times you do something, you retain
-it in your memory more effectively.
-
-6. Study in short, frequent sessions, because short repetitions of concentration are similar on how our brain 
-works. The human brain after working needs to rest to process the information it gets. Study time is much more
+it in your memory more effectively. Study in short, frequent sessions, because short repetitions of concentration are similar on 
+how our brain works. The human brain after working needs to rest to process the information it gets. Study time is much more 
 effective when you do it in small increments. And so, avoid stressing out yourself to study the whole day because
 you are putting to much pressure on your mind. Instead, allot an in between short break or mind relaxation to 
-give time for your brain to absorb what you have read
+give time for your brain to absorb what you have read. Breaks improve consistency and clarity.Track your progress
+A sense of accomplishment is like a breath of fresh air! Prioritize your tasks, keep track and check out your 
+accomplishments.
 
- Breaks improve consistency and clarity.
- 
- 7. Track your progress
- A sense of accomplishment is like a breath of fresh air! Prioritize your tasks, keep track and check out your 
- accomplishments.
  
 ##Post 1 - Oc 2, 2019
 
