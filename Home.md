@@ -37,23 +37,23 @@ work. Here are five things that you can do to help the process run a little smoo
 
 #5 Helpful Tips for Single Parents That Are Students
 
-Consistency is imperative, so getting a daitly routine is important. Take in consideration that your routine will
+1. Consistency is imperative, so getting a daitly routine is important. Take in consideration that your routine will
 generally work around your child/children's schedule. This will decrease the level of stress you will endure. 
 Optomizing your time to ensure that you have peace and less stress as possible during your learning process.
 
-It is scientificlly proven that it only takes about 15 minutes each day of giving your children ages xx quality 
+2. It is scientificlly proven that it only takes about 15 minutes each day of giving your children ages xx quality 
 time where they absolutely have your undivided attention for them to have their needs met. Pick something that 
 you can do with your child/children each day to ensure that their needs are being met.
 
-In the event you have a support system, it is okay to reach out for help. Check their availibilty and work around 
+3. In the event you have a support system, it is okay to reach out for help. Check their availibilty and work around 
 their shedule. If you don't have a support system, you may consider daycare facilities, home daycares, your 
 church home. If all of the above isn't applicable check this link out xxxxxxx.
 
-Take full advantage of nap time. Although you may not be in a position to use your hands, you can still utilize
+4. Take full advantage of nap time. Although you may not be in a position to use your hands, you can still utilize
 that time. Grab your headphones and listen to a video or tutorial if you are assigned any during your learning 
 process. Audio books may be useful for you depending on whether or not the particular one you need is available.
 
-Pace yourself and be very patient. Set, small, achievable goals and reward yourself when you reach a goal. Focus 
+2. Pace yourself and be very patient. Set, small, achievable goals and reward yourself when you reach a goal. Focus 
 on completing one assignment at a time. Self assessments help track your progress and motivates you to keep 
 going.
 
