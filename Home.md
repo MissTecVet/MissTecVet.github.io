@@ -19,7 +19,7 @@ linkedin
 twitter
 
 
-#Single Parents & Self Learning
+# Single Parents & Self Learning
 
 According to Malcom Knowles, self-learning is defined as: “a process by which individuals take the initiative,
 with or without the assistance of others, in diagnosing their learning needs, formulating learning goals, 
@@ -57,7 +57,7 @@ process. Audio books may be useful for you depending on whether or not the parti
 on completing one assignment at a time. Self assessments help track your progress and motivates you to keep 
 going.
 
-Self learning creates flexibility and makes it much more feasible to balance everyday life while going to school.
+## Self learning creates flexibility and makes it much more feasible to balance everyday life while going to school.
 Confidence is developed over time and perserverance takes a much deeper meaning. Over time each individual will 
 implement different things for motivation. Self learning takes discipline, but it teaches it as well. You gain an 
 increased sense of appreciation for what you are investing your time in. Self learning gives you the ability to 
@@ -66,7 +66,7 @@ identify problems and quickly look for effective solutions on your own.
 Self Learning has a lot of benefits, however self learning starts with self. It is viatal for you to take care
 of yourself in general, but even more so during your learning process. Make 
 
-Here are five tips for practicing successful self-study:
+### Here are five tips for practicing successful self-study:
 
 1. Prepare your study envinronment
 Dedicate a specific space. One of the best ways to efficiently get homework done at home is to have a specific space that you study in. Get rid of any and all distractions to ensure that you are able to focus on 
@@ -115,7 +115,7 @@ master
 ##Post 1 - October 2, 2019
 
 
-#Overcoming Obstacles
+# Overcoming Obstacles
 
 On an individual basis, we never know what someone is experiencing on a daily basis in their personal lives aside 
 from being a full time or in many cases a part time student. Generally, it is safe to say that we all deal with 
