@@ -35,29 +35,27 @@ It would be ideal to have available child care during your learning process, how
 case. Speaking from experience, it is challenging to keep a two year old occupied while engaging in your school
 work. Here are five things that you can do to help the process run a little smoother.
 
-5 Helpful Tips for Single Parents That Are Students
+#5 Helpful Tips for Single Parents That Are Students
 
-Consistency is imperative, so getting a daitly routine is important. Take in consideration that your routine will
+1. Consistency is imperative, so getting a daitly routine is important. Take in consideration that your routine will
 generally work around your child/children's schedule. This will decrease the level of stress you will endure. 
 Optomizing your time to ensure that you have peace and less stress as possible during your learning process.
 
-It is scientificlly proven that it only takes about 15 minutes each day of giving your children ages xx quality 
+2. It is scientificlly proven that it only takes about 15 minutes each day of giving your children ages xx quality 
 time where they absolutely have your undivided attention for them to have their needs met. Pick something that 
 you can do with your child/children each day to ensure that their needs are being met.
 
-In the event you have a support system, it is okay to reach out for help. Check their availibilty and work around 
+3. In the event you have a support system, it is okay to reach out for help. Check their availibilty and work around 
 their shedule. If you don't have a support system, you may consider daycare facilities, home daycares, your 
 church home. If all of the above isn't applicable check this link out xxxxxxx.
 
-Take full advantage of nap time. Although you may not be in a position to use your hands, you can still utilize
+4. Take full advantage of nap time. Although you may not be in a position to use your hands, you can still utilize
 that time. Grab your headphones and listen to a video or tutorial if you are assigned any during your learning 
 process. Audio books may be useful for you depending on whether or not the particular one you need is available.
 
-Pace yourself and be very patient. Set, small, achievable goals and reward yourself when you reach a goal. Focus 
+5. Pace yourself and be very patient. Set, small, achievable goals and reward yourself when you reach a goal. Focus 
 on completing one assignment at a time. Self assessments help track your progress and motivates you to keep 
 going.
-
-
 
 Self learning creates flexibility and makes it much more feasible to balance everyday life while going to school.
 Confidence is developed over time and perserverance takes a much deeper meaning. Over time each individual will 
@@ -68,7 +66,6 @@ identify problems and quickly look for effective solutions on your own.
 Self Learning has a lot of benefits, however self learning starts with self. It is viatal for you to take care
 of yourself in general, but even more so during your learning process. Make 
 
-
 Here are five tips for practicing successful self-study:
 
 1. Prepare your study envinronment
@@ -78,11 +75,11 @@ accesible and to help eliminate distractions. It is important to have a nice, cl
 study, so be sure to keep your environment clutter free and neat.
 
 2. Set SMART goals
- SMART. S.M.A.R.T. is an acronym that stands for specific, measurable, attainable, realistic and timely.
- Setting SMART goals for yourself ensures organiztion, decreased stressed, a sense of accomplishiment, structure
- and many more benefits. You gain a way to track your progress and evaluate your objectives. Check this link
- out for more information on SMART goals.
- https://www.yourcoach.be/en/coaching-tools/smart-goal-setting.php
+SMART. S.M.A.R.T. is an acronym that stands for specific, measurable, attainable, realistic and timely.
+Setting SMART goals for yourself ensures organiztion, decreased stressed, a sense of accomplishiment, structure
+and many more benefits. You gain a way to track your progress and evaluate your objectives. Check this link
+out for more information on SMART goals.
+https://www.yourcoach.be/en/coaching-tools/smart-goal-setting.php
  
 3. Increase your support. ...
 Self learning requires a lot of discipline and it is helpful to get an accountbility partner. Check for groups
@@ -95,22 +92,25 @@ It does'nt take long for learning resources to pile up. Pick some key resources 
 platforms to avoid becoming overwhelmed. Be sure to double check each one coincide with one another to avoid 
 getting confused.
 
-5. Repetition reinforces 
+5. Repetition and time 
 Extend grace to yourself during this learning process. Everything will come together over time. Consistency is
 key getting all you can out of what you are investing your time in. The more times you do something, you retain
-it in your memory more effectively.
-
-6. Study in short, frequent sessions, because short repetitions of concentration are similar on how our brain 
-works. The human brain after working needs to rest to process the information it gets. Study time is much more
+it in your memory more effectively. Study in short, frequent sessions, because short repetitions of concentration are similar on 
+how our brain works. The human brain after working needs to rest to process the information it gets. Study time is much more 
 effective when you do it in small increments. And so, avoid stressing out yourself to study the whole day because
 you are putting to much pressure on your mind. Instead, allot an in between short break or mind relaxation to 
-give time for your brain to absorb what you have read
+give time for your brain to absorb what you have read. Breaks improve consistency and clarity.Track your progress
+A sense of accomplishment is like a breath of fresh air! Prioritize your tasks, keep track and check out your 
+accomplishments.
 
+<break> MissTecVet-Overcoming-Obstacles
  Breaks improve consistency and clarity.
  
 7. Track your progress
 A sense of accomplishment is like a breath of fresh air! Prioritize your tasks, keep track and check out your 
 accomplishments.
+</break>
+master
  
 ##Post 1 - October 2, 2019
 
